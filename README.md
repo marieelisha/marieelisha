@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marieelisha
-- 👀 I’m interested in most things, I cam curious!
+- 👀 I’m interested in most things, I am curious!
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on related topics 
 - 📫 How to reach me [marieelishaaacademia@gmail.com]
